@@ -1,1 +1,1 @@
-veca poga
+jauna poga
